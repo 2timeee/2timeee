@@ -22,6 +22,10 @@
 
 <p align="center"> $\text{\color{#352754} ꪖzure}$ &nbsp; $\text{\color{#2d385e} yumes𝘩ipper}$ &nbsp; $\text{\color{#352754} selctive}$ &nbsp; $\text{\color{#2d385e} sharing}$
 
+<p align="center"> $\text{\color{#352754} ( not weird around fictkins/fictives, i promise. if i make you feel like that please, tell me.}$
+
+ <p align="center"> $\text{\color{#352754} i usually get excited over azure ponies based on how much i like how they made them, etc. )}$
+
 <p align="center"> $\text{\color{#2d385e} aiwec}$ &nbsp; $\text{\color{#2d385e} " moσdswinger "}$ &nbsp; $\text{\color{#352754} &nbsp; +}$ &nbsp; $\text{\color{#2d385e} attachmeꪀt}$ &nbsp; $\text{\color{#352754} issυׁׅes}$
 
 <p align="center"> $\text{\color{#352754} basic}$ &nbsp; $\text{\color{#2d385e} ᦔni &nbsp; !}$
